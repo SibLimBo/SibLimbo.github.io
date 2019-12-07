@@ -1,5 +1,3 @@
-# SibLimbo.github.io
-
 Privacy Policy
 
 SiberianStudios built the Bitcoin vs. Money: New Miner 2020 app as a Free app. This SERVICE is provided by SiberianStudios at no cost and is intended for use as is.
